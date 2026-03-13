@@ -1,2 +1,2 @@
 # dumb-little-projects-i-made
-its jus
+its just stupid lil projects i made
